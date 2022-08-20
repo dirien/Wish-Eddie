@@ -30,4 +30,5 @@ Syntax:
 |[vedanshi prajapati](https://twitter.com/vedanshi555)| Happy Birthday, Eddie! wish you a great life with happiness and good health|
 |[Om Sarraf](https://twitter.com/itsOmSarraf_)| Happy birthday, Eddie, I started open source contribution with help of your community, enjoy day :) 🥳🎈|
 |[Olamilekan](https://twitter.com/codewithola)| Best wishes on your birthday – may you have many, many more.!!|
+|[Engin Diri](https://twitter.com/_ediri)| Alles Gute zum Geburtstag Eddie - Happy Birthday Eddie!|
 |||
